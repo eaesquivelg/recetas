@@ -3,6 +3,7 @@
 ## Ingredientes
 * Mantequilla sin sal
 * Cobertura de chocolate semiamargo
+
 ![ ](https://www.bakels.com.ec/wp-content/uploads/sites/32/2024/06/MONEDAS-SEMIAMARGO-para-web.png)
 
 ## Instrucciones
